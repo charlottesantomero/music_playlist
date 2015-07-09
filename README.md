@@ -9,4 +9,7 @@ the eagles
 clasic rock
 reggae
 crazie$ by i fight dragons
+cheerleader by omi
+the beatles
+cat stevens
 
